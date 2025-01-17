@@ -2,7 +2,7 @@
 
 ## 🙂 About me
 
-Hello! My name is Manloi. I am based in Brussels. I have a professional background in operations, coordination and strategic communications within international organisations. My work has focused on topics such as:
+Hello! My name is Manloi. I am based in Brussels, Belgium. I have a professional background in operations, coordination and strategic communications within international organisations. My work has focused on topics such as:
 - Climate change
 - Development
 - International partnerships
